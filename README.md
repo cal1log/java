@@ -18,5 +18,5 @@
 
 ## 4 august 2021 - lesson 30-31-32-33
 
-## 5 august 2021 - lesson 34-35-36
+## 5 august 2021 - lesson 34-35-36-37-38-39
 
